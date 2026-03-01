@@ -1,6 +1,6 @@
-# timeo_yourcat
+# Atus_Allbelongstohim
 - いつか この人を好きになる
-- Name: Shuu.
+- Name: Tusa.
 - Age: 20+.
 - Interests: Reading books, Listening to the music, Playing games, Self-dating...
 - Favourite songs: Many.
